@@ -1,4 +1,4 @@
-# Justin-Jones# Hi, I'm Justin\_Jones 👋
+# Justin-Jones# Hi, I'm **Justin Jones** 👋
 
 ## 👨‍🏫 About Me
 
